@@ -1,4 +1,4 @@
-## Don't tell Eddie
+## Don't tell Eddie lmao
 
 [Eddie](https://jstris.jezevec10.com/u/eddie)
 
